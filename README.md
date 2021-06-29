@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @simenravnik
+- 👀 I’m interested in everything web related.
